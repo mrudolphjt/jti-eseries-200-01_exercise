@@ -1,1 +1,0 @@
-# jti-eseries-200-01_exercise
